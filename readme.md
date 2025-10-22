@@ -89,7 +89,7 @@ To run this project locally, follow these steps:
 Feel free to reach out if you have any questions or opportunities!
 
 - **Email:** [llincoln0816@gmail.com](mailto:llincoln0816@gmail.com)
-- **LinkedIn:** [Lincoln Lewin](https://www.linkedin.com/in/lincoln-lewin-295898383/)
+- **LinkedIn:** [Lincoln Lewin](https://www.linkedin.com/in/lincoln-lewin-705995386/)
 - **Instagram:** [@lincolnlewin0816](https://www.instagram.com/lincolnlewin0816)
 
 Thank you for visiting my site!
